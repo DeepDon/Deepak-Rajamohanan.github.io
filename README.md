@@ -1,1 +1,1 @@
-# Deepak-Rajamohanan.github.io
+👋 Hi, My name is Deepak Rajamohanan. 🔭 I’m a Tech Enthusiast .Looking forward to work as Ai Engineer,Data science Engineer,Data analyst 👀 I mainly focus on Electronics hardware and software development from scratch, 👨‍💻 I previously worked as Embedded Engineer for around 3 yeaars and various other job roles.
